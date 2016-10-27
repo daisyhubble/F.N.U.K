@@ -1,3 +1,3 @@
 # F.N.U.K
 
-Emma and Izzy taking radio by storm 
+Emma and Izzy taking radio by storm
